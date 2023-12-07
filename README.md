@@ -10,11 +10,17 @@ Da un ejemplo Instalación 🔧 Una serie de ejemplos paso a paso que te dice lo
 Dí cómo será ese paso
 
 Algunas webs permitidas para realizar la acción:
+
 https://despertarperu.com
+
 https://diariodelpacifico.com
+
 https://limaconfidencial.com
+
 https://lavozdelima.com
+
 https://economiasinfronteras.com
+
 
 Da un ejemplo Y repite
 
